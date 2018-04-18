@@ -1,1 +1,1 @@
-# Neuropharmacology Quizes
+# Neuropharmacology Quizzes
